@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tezalthapa10
 - 👀 I’m interested in networking and abit of coding
-- 🌱 I’m currently studying in ISlington college
+- 🌱 I’m currently studying in Islington college
 - 💞️ I’m looking to collaborate on company
 
 
